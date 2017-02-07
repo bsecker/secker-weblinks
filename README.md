@@ -1,1 +1,1 @@
-Weblinks for [Secker.nz](www.secker.nz)
+Weblinks for [http://Secker.nz/](www.secker.nz)
